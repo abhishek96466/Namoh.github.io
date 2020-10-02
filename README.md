@@ -1,1 +1,1 @@
-# Namoh.github.io
+# iDiscuss.github.io
